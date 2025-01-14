@@ -1,1 +1,0 @@
-# gtmotive-technical-assessment
